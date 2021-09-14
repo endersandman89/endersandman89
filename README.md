@@ -1,4 +1,6 @@
 I'm Ender.
+
+
 Some family, you must fight against.
 
 During great conflit, Your nature will reveal itself.
